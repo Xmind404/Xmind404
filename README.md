@@ -1,7 +1,7 @@
 
 ## 👋 Hi there  
 
-# 🧑‍💻 I'm Franciszek  
+# ;) I'm Franciszek  
 **Programmer | Ethical Hacker | Cybersecurity Enthusiast**
 
 ---
